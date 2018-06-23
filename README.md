@@ -1,0 +1,1 @@
+# cripto_na_sala_agora_vai
